@@ -1,2 +1,0 @@
-# Ali Abukhater
-## Product Manager
